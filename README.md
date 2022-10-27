@@ -1,1 +1,1 @@
-# AlexanderVasu.github.io
+vasua@go.stockton.edu
